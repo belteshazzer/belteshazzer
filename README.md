@@ -40,7 +40,7 @@ I'm always open to exciting projects, hackathons, or just a tech chat. Here's ho
    
    **💡   Have an idea?** Let's brainstorm! I love collaborating on innovative solutions  
    
-   **📄   Resume**: [View my resume](#) for more details  
+   **📄   Resume**: [View my resume](https://drive.google.com/file/d/1pqhObK0p9E1tdNKh_WPdLXJYw7OG--pG/view?usp=sharing) for more details  
 
 
 
